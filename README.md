@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there 👋<br><br>Nice meeting you, I'm Tanvi!<br><br>🔭 I’m currently working at Demandbase<br>💬 Ask me about Web development related stuff<br>📫 How to reach me: Twitter - @1998tanvi, LinkedIn - @agrawalTanvi<br>😄 Pronouns: She/Her<br>⚡ Fun fact: If I am not coding then I am probably wondering around the globe
+Hi there 👋<br><br>Nice meeting you, I'm Tanvi!<br><br>🔭 I’m currently working at Demandbase<br>💬 Ask me about Web development related stuff or where and when to travel<br>📫 How to reach me: Twitter - @1998tanvi, LinkedIn - @agrawalTanvi<br>😄 Pronouns: She/Her<br>⚡ Fun fact: If I am not coding then I am probably wondering around the globe
 
 
 ## 🌐 Socials:
